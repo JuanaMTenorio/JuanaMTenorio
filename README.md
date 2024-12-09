@@ -22,4 +22,4 @@
 
 ---
 
-🌟 ¡Gracias por pasarte por aquí! Si tienes alguna idea interesante o simplemente quieres conectar, no dudes en contactarme. 😊
+🌟 ¡Gracias por pasarte por aquí!. Si tienes alguna idea interesante o simplemente quieres conectar, no dudes en contactarme. 😊
